@@ -101,7 +101,7 @@ For production use (monitoring, bulk extraction, scheduled runs):
 
 ## Need Custom Social Media Analysis?
 
-**[Hire me →](https://spinov001-art.github.io)** | Email: Spinov001@gmail.com
+**📧 **spinov001@gmail.com** — custom quote in 2 hours** | Email: Spinov001@gmail.com
 
 ## License
 
